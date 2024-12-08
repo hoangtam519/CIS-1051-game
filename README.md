@@ -1,3 +1,5 @@
+YOUTUBE LINK: https://youtu.be/drsEurdM8rc
+
 # Proposal
 
 ## What will (likely) be the title of your project?
